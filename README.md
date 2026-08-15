@@ -6,9 +6,17 @@ BGMarif is an independent digital brand focused on trading, technology, AI, educ
 
 ## Official Links
 
-- Official Blogspot: https://bgmarif.blogspot.com/
-- YouTube: your YouTube link
-- Instagram: your Instagram link
+Blogspot: https://bgmarif.blogspot.com/
+YouTube: https://www.youtube.com/@bgmarif
+Instagram: https://www.instagram.com/arifbgm/
+Facebook: https://www.facebook.com/@bgmarif
+X: https://x.com/bgmarif
+Snapchat: https://www.snapchat.com/add/bgmarif
+Kick: https://kick.com/bgmarif
+Twitch: https://www.twitch.tv/bgmarif
+Reddit: https://www.reddit.com/user/bgmarif/
+Tumblr: https://www.tumblr.com/bgmarif
+Threads: https://www.threads.net/@bgmarif
 
 ## About BGMarif
 
